@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Purwansh093
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ... C
+- 👀 I’m interested in ... 
+- 🌱 I’m currently learning ... Java
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... fuerza093 on insta or email
+- 📫 How to reach me ... fuerza093 on insta or email kumarpurwansh4@gmail.com
 - 😄 Pronouns: ... Puru
 - ⚡ Fun fact: ... i love sketching. But be a good friend for free sketches ;)
 
