@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... 
 - 🌱 I’m currently learning ... Java
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... fuerza093 on insta or email kumarpurwansh4@gmail.com
+- 📫 How to reach me ... https://www.instagram.com/fuerza093?igsh=MWwwaXh4YnBlZjhibQ== on insta or email kumarpurwansh4@gmail.com
 - 😄 Pronouns: ... Puru
 - ⚡ Fun fact: ... i love sketching. But be a good friend for free sketches ;)
 
